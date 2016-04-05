@@ -10,4 +10,5 @@ LIVE ENTERTAINMENT
 
 FOOD ITEMS
 - Please bring homemade food from your family's secret formulas
+- Sam is allergic to raw apples, cooked apples are fine.
 
